@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @alfiraamaliaa
 - 👀 I’m interested in climate change
-- 🌱 I’m currently learning about environmental 
+- 🌱 I’m currently learning about environment
 - 💞️ I’m looking to collaborate on climate activities
-- 📫 you can contact me through my gmail: alfiraamaliaa@gmail.com
+- 📫 you can contact me through my g-mail: alfiraamaliaa@gmail.com
 - 😄 her
 - ⚡ Fun fact: i love doing badminton
 
